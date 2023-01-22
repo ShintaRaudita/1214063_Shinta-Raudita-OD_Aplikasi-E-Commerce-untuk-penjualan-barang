@@ -1,0 +1,1 @@
+# 1214063_Shinta-Raudita-OD_Aplikasi-E-Commerce-untuk-penjualan-barang
